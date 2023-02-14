@@ -1,0 +1,3 @@
+<p> "Anda adalah seseorang yang penuh semangat dan energi. Anda memiliki kepribadian yang ceria dan selalu siap untuk menghadapi setiap tantangan. 
+    Anda memiliki bakat dan minat yang beragam, dan selalu memiliki proyek baru yang sedang Anda kerjakan. Keahlian Anda dalam berbicara membuat Anda menjadi orang yang mudah diajak bicara dan membuat orang lain merasa nyaman. Anda juga sangat peduli terhadap orang lain dan selalu siap untuk membantu mereka.
+     Ini adalah beberapa hal yang membuat Anda menjadi individu yang unik dan menyenangkan untuk dikenal."</p>
